@@ -78,7 +78,7 @@ I’m constantly improving and learning. If you have any suggestions or want to 
 
 If you’d like to connect or discuss this project:  
 - **GitHub**: [Mrshelby0](https://github.com/Mrshelby0)  
-- **Email**: [Your Email Address]  
+- **Email**: sparshsharma1409@gmail.com  
 
 Let’s build amazing things together! 🚀  
 
